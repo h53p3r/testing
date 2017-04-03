@@ -1,1 +1,5 @@
 # testing
+Hi
+I am H35P3R..
+I AM NEW TO THIS..
+i HOPE YOU CAN HELP ME BE AS GOOD AS YOU ARE.
